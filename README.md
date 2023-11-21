@@ -9,7 +9,7 @@ I'm a passionate and results-oriented professional with a zest for continuous le
 * 🌍  I'm based in Nigeria
 * ✉️  You can contact me at [samsonbabalola7@gmail.com](mailto:samsonbabalola7@gmail.com)
 * 🧠  I'm learning Data Analytics
-* 🤝  I'm open to collaborating on Projects
+* 🤝  I'm open to collaborating with Start Up Founders, Tech Companies, Digital Firms, and Business Owners
 * ⚡  I am a Team Player and a Proponent of Data Revolution
 
 ### Skills
